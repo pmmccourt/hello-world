@@ -7,6 +7,3 @@ Making a change
 
 sajkhdsajkhsad
 basdsajkhdas
-asdkjhaskdj
-asdkhsadkjsad
-jkabsdkjh
